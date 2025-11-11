@@ -55,8 +55,8 @@ Unauthorized or illegal use is strictly prohibited.
 ---
 
 ### 📫 Contact
-📧 **Email:** your.email@example.com  
-🔗 **LinkedIn:** [linkedin.com/in/germanyasayara](https://linkedin.com/in/germanyasayara)  
+📧 **Email:** germanyagg13@gmail.com
+🔗 **LinkedIn:**  https://www.linkedin.com/in/germanya-sayara-ba14a21b1?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app
 💻 **GitHub:** [github.com/germanyasayara](https://github.com/germanyasayara)
 
 ---
